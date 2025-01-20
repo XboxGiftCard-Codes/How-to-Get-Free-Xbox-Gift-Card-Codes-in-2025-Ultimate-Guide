@@ -2,7 +2,7 @@
 
 Are you an avid Xbox gamer looking for a way to get free Xbox gift card codes in 2025? Well, you're in the right place! In this ultimate guide, we’ll show you how to secure free Xbox gift cards that you can use to unlock exciting games, downloadable content, in-game items, and much more. By the end of this article, you'll be well-equipped to claim your very own free Xbox gift card codes.
 
-### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/amazon/go/)
+### [✅👉CLICK HERE TO GET FREE!](https://freerewards.xyz/xbox/go/)
 
 **But Before We Start: Claim Your Free Offer Today!**
 
